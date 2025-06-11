@@ -4,7 +4,7 @@
 
 ꫂ ၴႅၴ i go for luix and lu.
 
-cuddles whenever you see my ponies ^_^
+cuddles whenever you see my ponies ₍^.  ̫.^₎
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣼⣿⡄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
