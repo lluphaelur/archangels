@@ -1,8 +1,8 @@
 
 ![1000013157](https://github.com/user-attachments/assets/36bd1cd6-5d22-456c-aa01-f109f3346a46)
-𝒂𝒗𝒆𝒏𝒄𝒉𝒖𝒓𝒊𝒏 𝒊𝒔 𝒔𝒐 𝒎𝒆...he/him/masc terms iwc.
+𝒂𝒗𝒆𝒏𝒄𝒉𝒖𝒓𝒊𝒏 𝒊𝒔 𝒔𝒐 𝒎𝒆...he/him/masc terms iwc .
 
-ꫂ ၴႅၴ i go for luix and lu.
+ꫂ ၴႅၴ i go for luix and lu
 
 cuddles whenever you see my ponies
 
